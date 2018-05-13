@@ -2,9 +2,3 @@ pipipippipipip
 sderfgrwegr
 ewg
 rw
-ew
-h
-fd
-srtbsrtbsr
-tsrt
-esfrewrwerwer
